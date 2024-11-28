@@ -4,6 +4,7 @@
 
 <p align="center">  
 heyaaa! names in use : allix / al ^^
+<p align="center"> 
+minor !
   
-    
 ![image description](https://gifs.crd.co/assets/images/gallery09/89caa217_original.png?v=ef433a6f)
